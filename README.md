@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @midnightmido
+- 👀 I’m interested in hot dudes nah im joking im single and not looking for anyone unless theyre perfect
+- 🌱 I’m currently learning biology blah blah blah
+- 💞️ I’m looking to collaborate on i have no idea
+- 📫 How to reach me via discord 
+- 😄 Pronouns: dont have shitty pronouns call me by my name
+- ⚡ Fun fact: i am a rocket league help loveer<3
